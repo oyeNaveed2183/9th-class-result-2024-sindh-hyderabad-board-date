@@ -10,7 +10,7 @@ The unveiling of the **9th class result 2024 Sindh Hyderabad Board** is a moment
 
 **Expected Date for the 9th Class Result 2024**
 
-The **Sindh Hyderabad Board** usually declares the results of 9th class exams after **90-120 days of exams** have been conducted. If such exams take place in **March or April of 2024**, the results will be declared in **July or August of 2024**.
+The **Sindh Hyderabad Board** usually declares the results of 9th class exams after **90-120 days of exams** have been conducted. If such exams occur in **March or April of 2024**, the results will be declared in **July or August of 2024**.
 
 For timely updates on the result announcement, students are advised to stay connected with reliable platforms like the and [ilmkidunya's 9th Class Result Page](https://www.ilmkidunya.com/results/bise-hyderabad-9th-class-result.aspx)** where they can find the latest news and information.
 
